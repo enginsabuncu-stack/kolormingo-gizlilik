@@ -1,0 +1,1 @@
+# kolormingo-gizlilik
